@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kotulaf
+- 👀 I’m interested in music, light coding, exercising and jogging :)
+- 🌱 I’m currently learning web development
+- 📫 How to reach me ig: kotulaf
